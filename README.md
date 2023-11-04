@@ -1,4 +1,4 @@
-## 📌Bem-vindo(a) ao meu perfil 🎈Francisco Sousa Luz 🎮 
+## 📌Olá, Me chamo Francisco Sousa 👋
 ### "Entusiasta da programação em busca de soluções criativas. 💻🚀"
 
  <div>
